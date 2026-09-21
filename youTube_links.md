@@ -18,7 +18,7 @@
 4. **Schritt 3**  
    [Open Interest - Die Map der Optionen](https://www.youtube.com/live/TAaDGBbKRoE)
 
-5. **Schritt 4**  5
+5. **Schritt 4**  
    [Market Profile as Market Map: Wie der Markt seine Story erzählt](https://www.youtube.com/live/0jlBXRqDeeQ)
 
 6. **Schritt 5**  
